@@ -1,4 +1,4 @@
-Ingredientes
+INGREDIENTES
 
 1 Kg de peito de frango desfiado
 1 lata de molho de tomates

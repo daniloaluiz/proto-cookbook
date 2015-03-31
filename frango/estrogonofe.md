@@ -1,4 +1,5 @@
-Ingredientes
+INGREDIENTES
+
 3 peitos de frango cortados em cubinhos
 1 dente de alho picado
 Sal e pimenta a gosto
